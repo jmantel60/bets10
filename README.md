@@ -1,10 +1,10 @@
-#  <a href="https://l24.im/Knd0">BETS10 GİRİŞ TIKLA</a>
+#  <a href="https://1282bets1o.com/">BETS10 GİRİŞ TIKLA</a>
 <meta charset="UTF-8">
     <meta name="viewport" content="width=device-width, initial-scale=1.0">
 </head>
 <body>
 
-<a href="https://l24.im/Knd0" title="ResimLink - Resim Yükle"><img src="https://r.resimlink.com/QaFm9Ji7cNL.png" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
+<a href="https://1282bets1o.com/" title="ResimLink - Resim Yükle"><img src="https://r.resimlink.com/QaFm9Ji7cNL.png" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
 </a>
 
 # Bets10 Güncel Giriş - Bets10 Resmi Adres İçin Ziyaret Edin.
